@@ -1,0 +1,2 @@
+Siema, z tej strony milomar.
+Nie sprzedawaj tego skrypta nikomu. Jest on całkowicie darmowy, dlatego proszę abyś nie pobierał za to pieniędzy, tym bardziej że nie jest to twoja praca. Skrypt został napisany w 100% przeze mnie i jest on bardzo prosty. Podchodzisz do znacznika, klikasz E i sprzedajesz narkotyki, jeżeli takowe masz w ekwipunku i oczywiście jesteś policjantem.
